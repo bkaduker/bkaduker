@@ -1,4 +1,4 @@
 Hi, I'm Burak 👋
 
-📫 How to reach me: burakkadukerr@gmail.com and Linkedln
+📫 How to reach me: burakkadukerr@gmail.com 
 
